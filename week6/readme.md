@@ -1,0 +1,1 @@
+In this week practical, you can continue to work on your week 5 lab, or you can work on your assignment 1.
